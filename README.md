@@ -11,7 +11,7 @@ https://user-images.githubusercontent.com/28294942/137707143-5db5ccac-f475-42b5-
 
 **You Can use this Beautiful Project for your college Project and get good marks too.**
 
-Email me Now **vatshayan007@gmail.com** to get this Full Project Code, PPT, Report, Synopsis, Video Presentation and Research paper of this Project.
+
 ### Website : https://www.finalproject.in/
 
 ### 1000 Computer Science Projects : https://www.computer-science-project.in/
